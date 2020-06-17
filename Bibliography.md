@@ -65,7 +65,7 @@
 *   Issue #22 (2020) "The wheel of Dharma"
 *   Sonnetland Special Edition (2020) "Fond Memory", "Death Valley", "Oh Greta!"
 *   Issue #23 (2020) "the facility"
-*   School Daze Special Edition (2020) "remembering", "murmuration"
+*   School Daze Special Edition (2020) "remembering"
 
 ###   Altadena Poetry Review: Anthology
 
